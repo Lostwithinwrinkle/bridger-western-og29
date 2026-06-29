@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with bridger western Scripts professional, the #1 Script. Includes instant win and god mode for
 
 
 
